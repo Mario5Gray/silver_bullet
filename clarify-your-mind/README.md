@@ -3,7 +3,8 @@ CHART FOR CLARIFYING JUDGEMENTS AND THEIR EFFECTS:
 |SELF JUDGEMENTS|WHAT YOU WOULD DO|GOOD FEELINGS|PARENTAL VOICE|FEAR AVOIDED|OTHER AREAS AFFECTED |
 |---------------|-----------------|-------------|--------------|------------|---------------------|
 
-E.G.
+Example:
+
 |SELF JUDGEMENTS|WHAT YOU WOULD DO|GOOD FEELINGS|PARENTAL VOICE|FEAR AVOIDED|OTHER AREAS AFFECTED |
 |---------------|-----------------|-------------|--------------|------------|---------------------|
 |Roberta: I'm too fat|be freer in my body; be more outgoing; be less defended; feel sexy; intimacy in life|feel beautiful;feel powerful;feel good about myself; I want sex|fear of attention, fear of energy, fear of sexuality|hold down sex feelings and creative every-where in life; not nourished in area of sex|
