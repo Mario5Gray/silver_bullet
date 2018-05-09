@@ -10,7 +10,8 @@ HEALTH-CARE examples:
 |-----------------------------|--------------|---------------|--------------|------------|
 |Pain in lower back|feel of pain;rest|Im too busy to get help|Unable to complete work in all areas|fear of failure and success;fear of criticism|lumps and pain in breasts;time for checkup|no lumps;no pain|It wouldnt happen to me.I dont trust doctors.|feel unhealthy all over; feel dishonest in all areas;feel vague sense of guilt|fear of cancer and its treatments;fear of death|
 
-OTHER-LIFE Area Examples:
+OTHER life area Examples:
+
 |MESSAGE FROM BALANCING SYSTEM|DESIRED RESULT|REASONS WHY NOT|OTHER AREAS AFFECTED|FEAR AVOIDED|
 |-----------------------------|--------------|---------------|--------------|------------|
 |No leisure time|fun;pleasure|im too busy|intimate relationships|fear of being ostracized|
@@ -18,6 +19,7 @@ OTHER-LIFE Area Examples:
 
 
 MY PATH:
+
 |MESSAGE FROM BALANCING SYSTEM|DESIRED RESULT|REASONS WHY NOT|OTHER AREAS AFFECTED|FEAR AVOIDED|
 |-----------------------------|--------------|---------------|--------------|------------|
 |Keep learning; explore|self discovery; universal understanding|sinister system at play|other people locked in same cycle; unable to avoid feelings of doubt guilt and treason|Fear of being a traitor.|
