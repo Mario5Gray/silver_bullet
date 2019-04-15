@@ -23,3 +23,17 @@
 * [Probability, Random Variables, and Stochastic Process 3rd ed.](https://www.amazon.com/Probability-Variables-Stochastic-Athanasios-1991-02-01/dp/B01FGMXBMK/ref=sr_1_2?s=books&ie=UTF8&qid=1530308949&sr=1-2&keywords=probability+random+variables+and+stochastic+processes&dpID=31255GN7VkL&preST=_SY291_BO1,204,203,200_QL40_&dpSrc=srch) - Athansaios Papoulis
 
 * [The Information; A History, A Theory, A Flood](https://www.amazon.com/INFORMATION-HISTORY-Pantheon-publisher-Hardcover/dp/B004Q9OYEY/ref=sr_1_2?s=books&ie=UTF8&qid=1530309216&sr=1-2&keywords=the+information+james+gleick&dpID=41N3hKE57ZL&preST=_SX218_BO1,204,203,200_QL40_&dpSrc=srch) - James Gleick
+
+## Security RFC's
+
+* [JWT related](https://tools.ietf.org/html/rfc7519)
+
+* [JWTs proof of possession](https://tools.ietf.org/html/rfc7800)
+
+* [JWS related](https://tools.ietf.org/html/rfc7515)
+
+* [JWE related](https://tools.ietf.org/html/rfc7516)
+
+* [JWK related](https://tools.ietf.org/html/rfc7517)
+
+* [related blog for jwt-jwe-jws](https://medium.facilelogin.com/jwt-jws-and-jwe-for-not-so-dummies-b63310d201a3)
