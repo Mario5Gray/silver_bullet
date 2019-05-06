@@ -26,3 +26,13 @@
 !! We create these forms and other creative beigns do as well.
 
 From a negative perspecitve, the more we have stewed on or become obsessed with our negative thoughts and emotions, the more clearly defined and powerful the negative forms will be. Their clarity, frequency and intention depend on what ours were when we created them.
+
+* Fourth Level REality Worlds and Their Inhabitants:
+
+This can be experienced as a space or spaces whose nature is determined by the belief systems of the 4th-level-reality beigns that inhabit them. These spaces - terroritories - system territories known as bardos range from heaven to hell and everything in between.
+
+How these worlds function is divisible into subworlds and may or may not be related to one another. A system of mathematics closely related to set theory can determine the functionality of each world. Parameters make up the nature of each space, then equastions (uknown) are used to determine how things work within a given set. they are describing the way things interact. Those interactions can determine the actual nature of the space.
+
+ * One of the basic laws of the makeup of the fourth-level-reality world.
+Belief system territories are not bound to spacial dimensions only. They are created and held into existence by the beigns that bond together and share the same beliefs and intents. A belief system does not exist until this is condition is met. Territorial space - of the dimension that those beings believe in - is created by their belief! The territorial space comes into existence because by virtue of the belief in a territorial space by the being that creates it.
+
