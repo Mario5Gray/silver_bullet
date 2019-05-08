@@ -27,6 +27,13 @@ Barbara's example folows: Many years ago, in the middle of the night, lower astr
 
 Here is also one of her stories of encountering a so-called evil entity: The story of Bud who committed suicide, and attempted to make 'contact' with Barbara through fear, until she surrendered and gave it non-conditional love and led it into heaven.
 
+Quote: Darkness looking through darkness sees darkness. But if you are in the light, light looking through darkness, you will see what it is.
+
+Profound forgetting is a very deep split in the psyche. A split is a division of the reality into good and bad. In a deep split, bad is really bad(evil) and good is angelic. Unfortunately, an individual with such a deep split tends to identify with the negative side of the split most of the time. When the personality switches to the poitive side of the split, it is usually an exaggerated unrealistic positive that does not last long and is not grounded in physical and spiritual reality. The most common expression of this type of split is expressed in an individual with bipolar syndrome. There is, of course, a physiological aspect of any such split as well as one that shows in the human energy field: the more profound the forgetting, the darker, denser, and more negative the energy. Another way to put it is that a being with a deep split has a very low opinion of itself.
+
+Quote: This great lesson is essential for all those who do astral healing work. It is so easy to look into dark astral worlds and see evil. That is not what the beigns there need! They are already struggling with strong negative self-images. They do not need  others projecting fears onto them. While they may try to frighten you, they do so because they are frightened of you! THey need lighthearted, loving acceptance and recognition of who they are! Beigns on the path eto enlightmentn!
+
+From this learning, Barbara is ready to take on Hell.
 
 
 
