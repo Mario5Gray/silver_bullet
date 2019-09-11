@@ -54,12 +54,65 @@ supernova explosion of core essence.
 
 The Core Star Dimension is the basis of The Hara. This is the experience we call intention or purpose. The Hara dimension plays a major role in successfully incarnating - as well as clarifying - one's life purpose and intention to incarnate. The Hara also plays a role in our moment-to-moment intentionality, as you will see later.
 
-when healthy, it extends from about three and one-half to four feet aboue the head all the way down into the center of the earth. At the top is an upside-down funnel where it enters other dimensions that reach toward the Godhead. This point is referred to by BBSH as the Individuation Point (ID point). It represents our first individuation out of the core star dimension into this incarnation, and throuigh it we have our direct connection to the Godhead.
+When healthy, it extends from about three and one-half to four feet aboue the head all the way down into the center of the earth. At the top is an upside-down funnel where it enters other dimensions that reach toward the Godhead. This point is referred to by BBSH as the Individuation Point (ID point). It represents our first individuation out of the core star dimension into this incarnation, and throuigh it we have our direct connection to the Godhead.
 
 ### The Soul Seat
 
-The soul seat is located in the area of the upper chest bone (manubrium) it appears as a soft pulsating light of various pink, lavender, and white colors. This light carries our soul's longing for what we want to accomplish in this lifetime. 
+The soul seat is located in the area of the upper chest bone (manubrium) it appears as a soft pulsating light of various pink, lavender, and white colors. This light carries our soul's longing for what we want to accomplish in this lifetime.
 
 ### The Main Power Center - The Tan Tien
 
-A hollow sphere called the Tan Tien is located in the hara about two to three inches below the navel, depending on how tall you are. When healthy, it is a sphere containing the powerful energuy of intention. The Tan Tien has the capacity to hold enormous amounts of power; it becomes filled with power through meditation and exercise. 
+A hollow sphere called the Tan Tien is located in the hara about two to three inches below the navel, depending on how tall you are. When healthy, it is a sphere containing the powerful energuy of intention. The Tan Tien has the capacity to hold enormous amounts of power; it becomes filled with power through meditation and exercise.
+
+Advanced healers know how to regulate the energy flowing in the Hara tube from the Tan Tien to the Minor Hand Chakras to release energy for healing. Martial artists are also able to regulate and utilize this power of the Tan Tien in their practices. It is the power of clear intention.
+
+According to a reading from Heyoan:
+
+The Tantien holds the one note
+with which you draw your physical body
+up into manifestation
+from your mother the earth.
+
+The lower end of the Hara below the Tan Tien when healthy, goes deep down all the way into the center of the earth. When it does this, we are very grounded and in alignment with our purpose for incarnation in this present life on earth.
+
+## The Human Energy Field (HEF)
+
+Foundation for the is the Hara. The BBSH method refers this to the auric field or energy body, as these terms are used interchangeably.
+
+The HEF consists of many levels, or "frequency ranges" of energy. The most well-known of these levels are the first seven. Although the HEF has many more levels than the seven mentioned. It is not an onion, the layers do not obscure other layers like the layers of an onion ( not at least from our perspective ?). 
+
+The frequency range of each level goes all the way through and extends from the physical body. Each consecutive level of higher frequence range extends further out from the body. The health of these levels is very important. Through it, we create not only how we experience life, but also many aspects of our life itself.
+
+### Understanding the relationship between reason will and emotion
+
+Another perspective of the HEF is based on whether the level is associated with reason, will, or emotion. In the HEF dimension, time is no longer linear, but is an innate aspect of each energy consciousness experience. Since our energy consciousness can bve divide into the three aspects of our life expeirence, all energy consxciousness in the HEF "dimension" is experienced as either reason, will, or emotion.  This writing uses the words feeling and emotion interchangeably but also in different contexts.  
+
+For one reason or another, humans tend to favor one or two aspects over the others. This tendency creates a distorition in our HECS to some degree.  
+
+For example, is it more important to you to understand things logically (reason), do you prefer to feel them ( emotion), or do you like to get things done (will)? 
+BBSH uses the term 'feeling' to denote the general sense of the unstructured levels of the fields and their associated chakras. Example, level tow and the second chakra are related to feelings. Any imbalance in reason, will or emotion shows directly in the levels of the fields the correspond to our reason (3rd and 7th) will (1st and 5th) and feelings (2nd, 4th, 6th levels).
+
+Remember: Emotions are reactions to a situation from the past and will distort HECS.  Feelings are responses to a situation in the present moment.
+
+** The Balancing act:
+
+The Sacred Healing Path
+of spiraling into one's core essence.
+
+It is a path of gathering the pieces of yourself
+that are scattered throughout time and
+space and bringing them into the wholeness
+of the sacred now within you.
+
+--Heyoan.
+
+### The Structured Levels
+
+### The Un-Structured Levels
+
+### The Seven Chakras
+
+### The Chakras and the Metabolisom of the HECS Bioplasma and High Sense Perception
+
+
+
